@@ -21,5 +21,5 @@ Hack facebook iran and 26 country  created by Prince Japor
    
    Contact for these tools !
    
-				TikTok		   : https://www.tiktok.com/@prince.japor
-				Facebook	   : https://www.facebook.com/japor123
+	TikTok	: https://www.tiktok.com/@prince.japor
+	Facebook: https://www.facebook.com/japor123
